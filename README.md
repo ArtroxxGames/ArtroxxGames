@@ -55,7 +55,7 @@
 ---
 
 ## 📫 Contacto
-📧 **arturomls.dev@gmail.com**  
+📧 **alsalinas119@gmail.com**  
 🌐 [LinkedIn](https://linkedin.com/in/arturo-matias-lopez-salinas)  
 💼 [Portfolio / Web](https://aun_no_tengo.dev)
 
