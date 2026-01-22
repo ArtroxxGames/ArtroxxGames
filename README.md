@@ -50,8 +50,7 @@
 ## 🎮 Un poco sobre mí
 - 🏋️‍♂️ Entreno todas las mañanas — disciplina ante todo.  
 - 🎧 Amante del rock y las baladas románticas (Ricardo Arjona es top).  
-- 🎬 Fan del anime y de los videojuegos de mundo abierto como *Diablo IV* y *God of War*.  
-- 🌍 Actualmente con planes de establecerme en España junto a mi familia.  
+- 🎬 Fan del anime y de los videojuegos de mundo abierto como *Diablo IV*, *Zelda Breath of the wild*, *The witcher 3*, *God of War*, etc.   
 
 ---
 
